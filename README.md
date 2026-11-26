@@ -9,5 +9,7 @@ Nicolle Cantor Mendoza
 240002860
 
 Team Member 3:
+Alesha Khan
+240022827
 
 Team Member 4:
